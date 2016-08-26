@@ -26,7 +26,7 @@
 
 ---
 
-![how to use bbs](https://bbs.sudiyi.cn/uploads/default/original/1X/fe03e7f2e5f542e77d70237b69ae9d6b0d646790.png)
+![how to use bbs](https://bbs.sudiyi.cn/uploads/default/original/1X/8a9b6e2af651ce8843fa6f3524b7d8f71fd2d29a.png)
 
 ---
 
